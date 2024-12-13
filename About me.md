@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @swastik sahu
 - 👀 I’m interested in coading,cricket,music,potrait arts
-- 🌱 I’m currently learning chemical engineering
+- 🌱 I’m currently learning chemical engineering at NIT Rourlela
 - 💞️ I’m looking to collaborate on ...
 
 - 😄 Pronouns: he/him
